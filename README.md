@@ -1,4 +1,4 @@
-# .extra
+# .extra ( PLEASE READ , )
  .    cove  /  kaos   .   fictionkin  !  >> [ please look at prn.cc for kin types or refer to the bottom of this ! ]
     ,  i can be awkward and quite shy @ first n might not always respond !!  .
     .   c+h  gives me lots of comfort, ALWAYS c+h freely - even if dni 
